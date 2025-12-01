@@ -10,3 +10,12 @@
 
 ## i has to sex.
 
+### krngl;ser.gkoeprgkerw;'ogj
+[gm;LWEgk[ew
+fkw
+[ekg'pwefll;wemgv;lwemf';lemf;'olAMf';le,f';e,fv'
+SE,v';S>c
+'A>Dc
+'/c
+'sa/c
+'.SD, ';asd.c';d,';,sc';,sml;cjdsofvjSElivbhnseopd'''''''''
